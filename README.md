@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Guardian-Namick
-While you are probably here for the program I have made, I also do some other things.
+- While you are probably here for the program I have made, I also do some other things. <br>
 Such as streaming on Twitch and Youtube, Editing videos to put on YouTube. I am also a Game Dev, Gamer, and probably more things I don't remember as well.
 - 📫 How to reach me guardiannamick@gmail.com is for any corespondance fan related or relating to my game, Phantom Asteroids.
 
