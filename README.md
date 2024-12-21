@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Guardian-Namick
-I'm not sure if I'm going to use this for Professional or Personal stuff currently, but,
-I am a Twitch Streamer, YouTuber, Game Dev, Gamer, and probably more things I don't remember as well.
+While you are probably here for the program I have made, I also do some other things.
+Such as streaming on Twitch and Youtube, Editing videos to put on YouTube. I am also a Game Dev, Gamer, and probably more things I don't remember as well.
 - 📫 How to reach me guardiannamick@gmail.com is for any corespondance fan related or relating to my game, Phantom Asteroids.
 
 - For my Twitch you can find me [@Scholar_Namick](https://www.twitch.tv/scholar_namick)
